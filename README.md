@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @sehgalyash
+- 👀 I’m interested in Design and frontend engineering
+- 📫 How to reach me at yashsehgal.work@gmail.com
+- 😄 Pronouns: He/Him
